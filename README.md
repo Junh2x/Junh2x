@@ -1,4 +1,4 @@
-### Software Engineer · Korea
+### Software Engineer
 
 <br/>
 
